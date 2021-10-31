@@ -7,3 +7,4 @@
 ![image](https://user-images.githubusercontent.com/85113970/122633478-8bbec680-d0f6-11eb-97a7-fc5e46e186e5.png)
 #  During secondary school, he was elected captain of MacGregor State in Queensland and worked with the student council on fundraising events for local charities and disability campaigns. When he was seventeen, he started to give talks at his prayer group, and later founded his non-profit organization, Life Without Limbs.non-profit organization, Life Without Limbs.  
  
+Speaker 
